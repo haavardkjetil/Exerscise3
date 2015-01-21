@@ -1,1 +1,3 @@
-# Exerscise3
+# Exejhkjscise3
+
+Skrive hva jeg vil
